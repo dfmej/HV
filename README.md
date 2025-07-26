@@ -2,7 +2,7 @@
 
 David Fernando Mejia E
 e-mail:dfmejia220@gmail.com
-cel:3005475457
+cel:300.....
 
 Tecnologo En Mantenimiento de Equipos de Cómputo 
 
